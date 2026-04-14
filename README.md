@@ -2,8 +2,8 @@
 
 ![Image](https://github.com/user-attachments/assets/21bdaf4c-a8ed-497b-adb8-b49b4b1c0fe6)
 
-My name is Natsu 
-:3
+ 
+
 
 <!--
 **Clipper-Paws/Clipper-Paws** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

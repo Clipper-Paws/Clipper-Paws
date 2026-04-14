@@ -3,11 +3,9 @@
 ![Image](https://github.com/user-attachments/assets/21bdaf4c-a8ed-497b-adb8-b49b4b1c0fe6)
 
  
-    𝚖𝚢 𝚗𝚊𝚖𝚎𝚜𝚜
-        𝙽𝚊𝚝𝚜𝚞 
-              𝙽𝚊𝚝𝚜   
-                     𝙽𝚊𝚝𝚋𝚞𝚜 
-
+#             (⁠≧⁠▽⁠≦⁠)
+             
+      My name Is Natsuuuu 
 
    
 

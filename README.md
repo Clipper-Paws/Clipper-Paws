@@ -1,23 +1,11 @@
+<img width="320" height="240" alt="Image" src="https://github.com/user-attachments/assets/be5543b7-54a5-4a1c-aa4b-7bedd272cf5c" />
 
 
-![Image](https://github.com/user-attachments/assets/21bdaf4c-a8ed-497b-adb8-b49b4b1c0fe6)
-      (⁠≧⁠▽⁠≦⁠)
- HIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII 
- i am Natsu 
+⊙⁠﹏⁠⊙        (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
 
+(⁠￣⁠ヘ⁠￣⁠;⁠) 
+
+     ♡⁠(⁠Ӧ⁠ｖ⁠Ӧ⁠｡⁠).              ෆ⁠╹⁠ ⁠.̮⁠ ⁠╹⁠ෆ
    
+      (⁠ﾉ⁠◕⁠ヮ⁠◕⁠)⁠ﾉ⁠*⁠.⁠✧ **Call me Natsu please**(⁠◠⁠‿⁠・⁠)⁠—⁠☆ !!
 
-<!--
-**Clipper-Paws/Clipper-Paws** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
